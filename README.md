@@ -9,11 +9,9 @@
 
 - 🤝 Technical advisor [Altaheah platform](https://twitter.com/Altaheah)
 
-- 👨‍💻 All of my projects are available at [https://github.com/RedaTeaches](https://github.com/RedaTeaches)
-
 - 📫 How to reach me **reda.job.r8@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/reda-al-abdullah-820b1b20a/](https://www.linkedin.com/in/reda-al-abdullah-820b1b20a/)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
